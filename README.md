@@ -1,0 +1,2 @@
+# tuberkgngr
+Öğrenciyim
